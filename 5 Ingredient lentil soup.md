@@ -4,7 +4,7 @@
 * 2 cups water
 * 1 tsp salt
 
-Combine all except salt, simmer mixture uncovered on low for 30 minutes, add salt, serve
+Combine all except salt, simmer mixture uncovered on low for 45 minutes, add salt, serve
 tricky to get right, simmering low uncovered preserves the tenderness of the lentils
 
 ##### Tips
