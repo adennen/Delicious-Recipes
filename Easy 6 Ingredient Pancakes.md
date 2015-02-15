@@ -5,10 +5,7 @@
 5. 1 Egg
 6. 1 Cup Liquid (Water, Milk, or Kool-Aid™)
 
-* Combine oil and dry ingredients and mix, add in Egg and Liquid and mix
-* Oil a pan and heat between medium and medium-high
-* Add batter to pan in desired sizes, cook about 2:30 per side
-* Oil pan as necessary
+Combine oil and dry ingredients and mix, add in Egg and Liquid and mix. Oil a pan and heat between medium and medium-high. Add batter to pan in desired sizes, cook about 2:30 per side. Oil pan as necessary
 
 ##### Tips
 * Use lots of butter
